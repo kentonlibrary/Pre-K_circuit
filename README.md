@@ -7,7 +7,7 @@ Feel free to add your own tops with a link to the product they go with.
 The connectors I used in all of the containers are these:
 https://www.amazon.com/gp/product/B003HLW14W/ref=ppx_yo_dt_b_asin_title_o06_s01?ie=UTF8&psc=1
 
-The cables used are regular 1/4" guitar cables.  I made my own 6" version.
+The cables used are regular 1/4" guitar cables.  I made my own 1' version.
 
 The Battery box is made of wood and has these battery packs in them:
 https://www.amazon.com/gp/product/B06XFQQ8WX/ref=ppx_yo_dt_b_asin_title_o06_s01?ie=UTF8&psc=1
